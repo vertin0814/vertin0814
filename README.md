@@ -29,10 +29,7 @@
 
 ###  🏃 The Present Continuous 
 ——————————————————————————————————————————————————————————
-<img width="200" src="https://github.com/vertin0814/vertin0814/assets/168434701/ec1db936-df5b-4431-ba5c-2d2a0b95af68">
-<img width="200" src="https://github.com/vertin0814/vertin0814/assets/168434701/31cf06fa-f1ed-4dda-8ae1-f2b70f3e5448">
 
-<img width="200" src="https://github.com/vertin0814/vertin0814/assets/168434701/9e2bb22b-85ea-4dd6-8fbb-0ecaf88f44a0">
 
 
 
